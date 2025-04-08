@@ -14,7 +14,7 @@
 
 -games: Minecraft, GTA 5, Stardew Valley, Animal Crossing, Pikuniku, Goat Sim, Pkmn Lets Go Eevee, plus a million mario games <///3
 
--characters: Will Graham (stop being gooners towards him you FREAKS), Dexter Morgan, Sam Winchester, Castiel, Dean Winchester, Jack Kline, Danny Sullivan, Abigail Hobbs, 
+-characters: Will Graham (stop being gooners towards him you FREAKS), Dexter Morgan, Sam Winchester, Castiel, Dean Winchester, Jack Kline, Danny Sullivan,and Abigail Hobbs
 
 -pkmn (this needs a whole catagory yes): Espurr, Mimikyu, Ditto, Vanillish, Bramblin, Slurpuff, Porygon, Haunter, Tatsugiri, Luxio, Poliwag, Milcery, Maushold, Lapras, Morelull, Bewear, Duskull, Litwick, and Noibat
 

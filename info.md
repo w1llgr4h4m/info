@@ -1,20 +1,20 @@
 # ab me/interests
 
- kurt/danci
+ danci/evangeline
  
 -13
 
--amercian (gmt-5)
+-new englander/yankee (gmt-5)
 
 -bands/artists: Kansas, Metallica, Djo, Harry Styles (</3), Frankie Avalon, and Jack Stauber
 
 -shows: Dexter + OG sin + New Blood, Daredevil, The  Punisher, Supernatural, Marvel Defenders saga, The Crowded Room, Lost, and Hannibal
 
--movie: Spree, The Blair Witch Project, The Batman + The Dark Night movies, Harry Potter 1-8, and The Silence of The Lambs
+-movies: Pusher 1 + 2 + 3, Spree, The Blair Witch Project, The Batman + The Dark Night movies, Harry Potter 1-8, The Silence of The Lambs, and Blood and Chocolate (ironically tho its like, funny bad).
 
 -games: Minecraft, GTA 5, Stardew Valley, Animal Crossing, Pikuniku, Goat Sim, Pkmn Lets Go Eevee, plus a million mario games <///3
 
--characters: Will Graham (stop being gooners towards him you FREAKS), Dexter Morgan, Sam Winchester, Castiel, Dean Winchester, Jack Kline, Danny Sullivan,and Abigail Hobbs
+-characters: Will Graham (stop being gooners towards him you FREAKS), Dexter Morgan, Sam Winchester, Castiel, Dean Winchester, Jack Kline, Danny Sullivan, Aiden Galvin, and Abigail Hobbs
 
 -pkmn (this needs a whole catagory yes): Espurr, Mimikyu, Ditto, Vanillish, Bramblin, Slurpuff, Porygon, Haunter, Tatsugiri, Luxio, Poliwag, Milcery, Maushold, Lapras, Morelull, Bewear, Duskull, Litwick, and Noibat
 

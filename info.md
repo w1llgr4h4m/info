@@ -1,24 +1,20 @@
 # ab me/interests
 
- danci/evangeline
+danci/evangeline
  
--13
+13 (02/21/12
 
--new englander/yankee (gmt-5)
+new englander/yankee (gmt-5)
 
--bands/artists: Kansas, Metallica, Djo, Harry Styles (</3), Frankie Avalon, and Jack Stauber
+bands/artists: Kansas, Metallica, Djo, Supertramp, Asia, Electric Light Orchestra
 
--shows: Dexter + OG sin + New Blood, Daredevil, The  Punisher, Supernatural, Marvel Defenders saga, The Crowded Room, Lost, and Hannibal
+shows: Dexter + OG sin + New Blood, Daredevil, The  Punisher, Supernatural, Marvel Defenders saga, The Crowded Room, Lost, Orange Is the New Black, The Walking Dead, and Hannibal
 
 -movies: Pusher 1 + 2 + 3, Spree, The Blair Witch Project, The Batman + The Dark Night movies, Harry Potter 1-8, The Silence of The Lambs, and Blood and Chocolate (ironically tho its like, funny bad).
 
--games: Minecraft, GTA 5, Stardew Valley, Animal Crossing, Pikuniku, Goat Sim, Pkmn Lets Go Eevee, plus a million mario games <///3
+-games: Minecraft, GTA 5, Stardew Valley, Animal Crossing, Pikuniku, Goat Sim, Pkmn Lets Go Eevee, plus a million Mario games
 
 -characters: Will Graham (stop being gooners towards him you FREAKS), Dexter Morgan, Sam Winchester, Castiel, Dean Winchester, Jack Kline, Danny Sullivan, Aiden Galvin, and Abigail Hobbs
-
--pkmn (this needs a whole catagory yes): Espurr, Mimikyu, Ditto, Vanillish, Bramblin, Slurpuff, Porygon, Haunter, Tatsugiri, Luxio, Poliwag, Milcery, Maushold, Lapras, Morelull, Bewear, Duskull, Litwick, and Noibat
-
--i also really like death's-head hawkmoths, i want one </3
 
 ## dni
 -basically anyone who ships stuff that isn't between 2 consenting adults and is morally wrong/illegal (plus self shippers, i find y'all weird af)
@@ -29,15 +25,15 @@
 
 -dsmp/hazbin hotel/helluva boss/THOSE dandys world fans
 
--ppl who are like, 20+ or 10-
+-ppl who aren't really near my age range
 
 -mfs who ASK for face reveals, it feels pressuring lol
 
--SUPER far left/ and especially far right ppl, you guys need some nuance
+-SUPER far right people, but even super far left ppl annoy me kinda, but you can have your opinions ofc
 
--ppl who draw nsfw of live action characters (and nsfw drawers in gen), i would cry if i was an actor and sum dude did that to me
+-ppl who draw nsfw... even worse if its a live action character, that's a real guy y'all
 
--cookie run kingdom fans stay away from me please, i have pepper spray bro !!!!!!
+-cookie run kingdom fans stay away from me please, i have pepper spray bro !!!!!! (unless ur normal then idc)
 
 
 ## thin ice ig

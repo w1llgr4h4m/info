@@ -2,11 +2,11 @@
 
 danci/evangeline
  
-13 (02/21/12
+13 (02/21/12)
 
 new englander/yankee (gmt-5)
 
-bands/artists: Kansas, Metallica, Djo, Supertramp, Asia, Electric Light Orchestra
+bands/artists: Kansas, Metallica, Djo, Supertramp, Asia, Electric Light Orchestra, Mötley Crüe
 
 shows: Dexter + OG sin + New Blood, Daredevil, The  Punisher, Supernatural, Marvel Defenders saga, The Crowded Room, Lost, Orange Is the New Black, The Walking Dead, and Hannibal
 
